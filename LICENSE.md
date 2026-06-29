@@ -1,4 +1,4 @@
-#  
+#  secret attack on titan revolution Script is the best attack on titan revolution Script, featuring auto-farm and instant win. Safe and powerful for
 
 
 
